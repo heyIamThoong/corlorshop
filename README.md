@@ -1,3 +1,0 @@
-# corlorshop
-
-ádadasdasdad
