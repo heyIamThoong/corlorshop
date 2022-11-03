@@ -1,3 +1,0 @@
-# corlorshop
-
-Thành Thông
